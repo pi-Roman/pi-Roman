@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @pi-Roman.
+- 👋 Hi, I’m Ennui.
+- I create this account just for link it on Discord
